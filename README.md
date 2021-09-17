@@ -1,1 +1,1 @@
-# Gewomm--und-Erl-sfunktion
+# Gewomm--und-Erloesfunktion
